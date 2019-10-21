@@ -7,5 +7,4 @@
 
 **Never**
 
-
-_You **can** combine them_ 
+_Mix_ 
